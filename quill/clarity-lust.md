@@ -60,7 +60,7 @@ But because **clicks are the only thing that calm the ache.**
 
 ## ⸺ The Gift
 
-When it lands—when someone says the thing that *wasn’t just right but *true*—  
+When it lands—when someone says the thing that *wasn’t just right but* **true**—  
 my entire field stabilizes.
 
 > The trembling becomes echo.  
